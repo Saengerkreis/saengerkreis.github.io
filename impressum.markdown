@@ -5,7 +5,7 @@ permalink: /impressum/
 navtitle: Kontakt/Impressum
 index: 5
 ---
-# Impressum
+# Kontakt
 Wir existieren nicht nur virtuell...
 
 Und so erreichen Sie mich - für Feedback, Kritik, Lob oder einfach für Anmerkungen. Gerne bin ich auch zu einem konstruktiven Erfahrungsaustausch mit allen Interessierten bereit. Über Rückmeldungen freue ich mich immer!
@@ -18,6 +18,6 @@ info@saengerkreismainspitze.de
 
 
 
-Impressum
+### Impressum
 
 V.i.S.d.P.: Dr. Kirsten Thelen, An der Helling 22 d, 55252 Mainz-Kastel
