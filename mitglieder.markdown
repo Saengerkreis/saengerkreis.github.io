@@ -36,10 +36,10 @@ Frauenchor<br>
 Männerchor<br>
 Gemischter Chor "Disharmonix"
 
-[GV Einigkeit 1898 Gustavsburg](#)<br>
+GV Einigkeit 1898 Gustavsburg<br>
 Gemischter Chor
 
-[G.V. Harmonie 1854 Mainz-Kostheim](#)<br>
+G.V. Harmonie 1854 Mainz-Kostheim<br>
 Großer Chor<br>
 Rainbow<br>
 Kinder- und Jugendchor (ca. 5-15 Jahre)
@@ -58,7 +58,7 @@ Männerchor
 Frauenchor<br>
 Männerchor
 
-[MGV Sängerlust 1877 Walldorf](#)<br>
+MGV Sängerlust 1877 Walldorf<br>
 Männerchor
 
 [Sport- und Sängervereinigung 1911 e.V., Abt. Gesang Raunheim](https://www.ssv-raunheim.de/abteilungen/gesang/)<br>
