@@ -6,7 +6,7 @@ navtitle: Unsere Mitglieder
 index: 3
 ---
 # Unsere Mitglieder
-<img style="width: 250px; float: right;" alt="Chor" src="/choir.png" hspace="10" vspace="10">
+<img style="width: 300px; float: right;" alt="Chor" src="/Saengerkreis/choir3.svg" hspace="10" vspace="10">
 
 Hier finden Sie in alphabetischer Reihenfolge unsere Mitglieder, die Vereine mit ihren einzelnen Chören und die dazugehörigen Links (soweit vorhanden). Machen Sie sich von allen ein Bild und finden Sie "Ihren" Chor!
 

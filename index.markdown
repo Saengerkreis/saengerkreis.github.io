@@ -12,7 +12,7 @@ bild: Chor.jpg
 index: 1
 ---
 # Herzlich Willkommen!
-<img style="width: 227px; height: 222px; float: right;" alt="Chor" src="/Chor.jpg" hspace="10" vspace="10">
+<img style="width: 250px; float: right;" alt="Chor" src="/Saengerkreis/choir2.svg" hspace="10" vspace="10">
 
 Herzlich Willkommen auf unseren Seiten! Sie sind hier beim Sängerkreis Mainspitze, einem Zusammenschluss von Chören aus allen Gemeinden rings um die Mainspitze. Unsere Leidenschaften? Das Singen und - unsere Chöre!
 
