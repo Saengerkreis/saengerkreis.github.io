@@ -1,14 +1,10 @@
-<td style="width: 169px;" nowrap="nowrap" valign="top" id="nav"> <br>
-  <p><small> </small></p>
-  <dl>
-    {% assign lst = site.pages | sort:'index'%}
+  <ul>
+    {% assign lst = site.pages |sort:'index', 'last'%}
     {% for page in lst%}
-    <dd style="color: rgb(102, 51, 0);">
-      <p><a href="{{page.permalink}}">{{page.navtitle}}</a></p>
-    </dd>
+    {% if page.index != nil %}
+    <a href="{{page.permalink}}"><li>
+      {{page.navtitle}}
+    </li></a>
+    {% endif %}
     {% endfor %}
-  </dl>
-  <br>
-  <p><small style="color: rgb(0, 0, 0);"> </small></p>
-  <!--||| Ende Menuepunkte, hier ist Platz f�r weitere Links oder Grafiken, die aber nicht breiter als 130 Pixel sein d�rfen. |||-->
-</td>
+  </ul>

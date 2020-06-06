@@ -2,21 +2,54 @@ body{
   font-family: Open Sans, sans-serif;
 }
 
-h1, h2, h3, h4, h5, h6, #title{
+h1, h2, h3, h4, h5, h6, #title, #nav li{
   font-family: Montserrat, sans-serif;
 }
 
 #title{
-  color: #FF9933;
+  color: #f58e27;
   font-weight: bold;
   font-size: 1.5em;
   text-align: center;
 }
 
 a, a:visited, a:active{
-  text-decoration: none; color: #FF9933;
+  text-decoration: none; color: #f58e27;
 }
 
 a:hover{
   color: #CA1604;
+}
+
+#nav li{
+  color: white;
+  list-style-type: none;
+  padding: .5em .5em .5em 1em;
+}
+
+#nav li:hover{
+  color: #CA1604;
+  /*background-color: #f58e27;
+  color: white;*/
+}
+
+#left{
+  position: fixed;
+  left: 0;
+  top: 0;
+  background-color: #f58e27;
+  width: 16em;
+  min-height: 100vh;
+}
+
+#left img{
+  margin-top: 2em;
+  margin-bottom: 2em;
+}
+
+main{
+  position: absolute;
+  left: 20em;
+  top: 0;
+  margin-right: 10em;
 }

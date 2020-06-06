@@ -16,45 +16,25 @@
 
 
 <body>
-  <table style="left: 0px; width: 947px; height: 156px;" border="0" cellpadding="0" cellspacing="0">
-    <tbody>
-      <tr>
-        <td style="text-align: right; width: 182px;">
-          <img style="width: 200px;" alt="Logo" src="/Saengerkreis/logo.png" align="middle"><br>
-        </td>
-        <td style="width: 672px;" align="left" valign="top"> <br>
-          <a id="title" href="/">
-            <h1>S&auml;ngerkreis Mainspitze</h1>
-          </a>
-          <div style="text-align: right;">
-            <span style="font-size:.8em;">
-              im Hessischen
-                S&auml;ngerbund HSB
-            </span>
-            <a href="https://www.hessischer-saengerbund.de/" target="_blank">
-              <img style="width: 70px; height: 53px;" alt="HSB" src="/Saengerkreis/HSB.png" align="middle" hspace="5" vspace="5">
-            </a>
-          </div>
-        </td>
-      </tr>
-    </tbody>
-  </table>
-  <table style="left: 0px; width: 1006px; " border="0" cellpadding="15" cellspacing="0">
-    <tbody>
-      <tr>
-        {% include nav.html %}
+  {% include banner.html %}
 
-        <!--||| Anfang Textspalte |||-->
-        <td style="width: 714px;" valign="top">
-          {{content}}
-          <p style="text-align: center;">
-            <img style="width: 250px;" alt="MGV" src="/Saengerkreis/choir.svg" align="middle" hspace="5" vspace="5">
-          </p>
-        </td>
-      </tr>
-    </tbody>
-  </table>
-  {% include footer.html %}
+  <main>
+    <a id="title" href="/">
+      <h1>S&auml;ngerkreis Mainspitze</h1>
+    </a>
+    <div style="text-align: right;">
+      <span style="font-size:.8em;">
+        im Hessischen
+          S&auml;ngerbund HSB
+      </span>
+      <a href="https://www.hessischer-saengerbund.de/" target="_blank">
+        <img style="width: 70px; height: 53px;" alt="HSB" src="/Saengerkreis/HSB.png" align="middle" hspace="5" vspace="5">
+      </a>
+    </div>
+    {{content}}
+    {% include footer.html %}
+  </main>
+
 </body>
 
 </html>
