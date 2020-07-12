@@ -1,6 +1,6 @@
 # Wie ändere ich eine Seite?
 1. Zugehörige .markdown-Datei finden
-2. Text an entsprechender Stelle abändern
+2. Text an entsprechender Stelle abändern, dabei aber sonstigen Text unverändert lassen!
 
 ## Links erzeugen
 Typischer Link:
