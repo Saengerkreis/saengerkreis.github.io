@@ -58,9 +58,6 @@ Männerchor
 Frauenchor<br>
 Männerchor
 
-MGV Sängerlust 1877 Walldorf<br>
-Männerchor
-
 [Sport- und Sängervereinigung 1911 e.V., Abt. Gesang Raunheim](https://www.ssv-raunheim.de/abteilungen/gesang/)<br>
 Kinderchor "Ohrwürmer"
 

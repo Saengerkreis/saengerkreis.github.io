@@ -22,4 +22,4 @@ Singen im Chor - das heißt zuhören, verstehen und Freude geben in einer Gemein
 
 Viel Spaß auf diesen Seiten! Vielleicht bekommen Sie ja Lust auf mehr... Dann besuchen Sie doch einfach eines unserer Konzerte! Oder: Singen Sie gleich mit! Unter den zahlreichen Mitgliedern findet sich sicher auch der passende Chor für Sie.
 
-**AKTUELL:  Wegen der derzeitigen Gesundheitskrise finden im Sängerkreis Mainspitze vorerst noch keine Chorproben und Veranstaltungen statt. Aktuelle Informationen des Hessischen Sängerbundes auch zu Öffnungsperspektiven in der Coronakrise finden Sie <a href="https://www.hessischer-saengerbund.de/" target="_blank">hier</a>.**
+**AKTUELL: Die Hessische Landesregierung hat Öffnungsperspektiven für die Laienchorarbeit erarbeitet, die ständig aktualisiert werden. Viele Chöre haben die Probenarbeit daher wieder aufgenommen und freuen sich auf neue Sängerinnen und Sänger. Bitte erkundigen Sie sich bei dem Verein Ihres Interesses direkt. Informationen zur Auslegung der aktuellen Corona-Verordnung finden Sie auch auf der Seite des Hessischen Sängerbundes: <a href="https://www.hessischer-saengerbund.de/" target="_blank">hier</a>.**
