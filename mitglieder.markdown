@@ -36,7 +36,7 @@ Frauenchor<br>
 Männerchor<br>
 Gemischter Chor "Disharmonix"
 
-GV Einigkeit 1898 Gustavsburg<br>
+[GV Einigkeit 1898 Gustavsburg](https://www.facebook.com/Gesangverein-Einigkeit-1898-Gustavsburg-eV-100307365726793/?ref=page_internal)<br>
 Gemischter Chor
 
 G.V. Harmonie 1854 Mainz-Kostheim<br>
