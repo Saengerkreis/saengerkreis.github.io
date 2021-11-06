@@ -12,15 +12,15 @@ Im Sängerkreis Mainspitze haben sich nach Ende des Zweiten Weltkriegs zunächst
 <img style="width: 300px; float: right;" alt="Chor" src="/Saengerkreis/Saenger.png">
 Der Sängerkreis Mainspitze ist Mitglied des Hessischen Sängerbundes im Deutschen Chorverband und wird durch seinen Vorstand vertreten. Zur Zeit sind das:
 
-1. Vorsitzende: Dr. Kirsten Thelen (Capriccio Musicale)
+1\. Vorsitzende: Dr. Kirsten Thelen (Capriccio Musicale)
 
-2. Vorsitzende: Anette Reichel (Chorgemeinschaft 1842 S.C.H. Ginsheim)
+2\. Vorsitzende: Anette Reichel (Chorgemeinschaft 1842 S.C.H. Ginsheim)
 
 Kreis-Chorleiter: Hanno Kirsch (u.a. Club Harmonie 1911 Rüsselsheim)
 
-1. Schriftführerin: Monika Preuße (Chorgemeinschaft 1842 S.C.H. Ginsheim, MGV Mozart 1855 Trebur)
+1\. Schriftführerin: Monika Preuße (Chorgemeinschaft 1842 S.C.H. Ginsheim, MGV Mozart 1855 Trebur)
 
-2. Schriftführerin: Franka Niendorf (Chorgemeinschaft 1842 S.C.H. Ginsheim)
+2\. Schriftführerin: Franka Niendorf (Chorgemeinschaft 1842 S.C.H. Ginsheim)
 
 Kassierer: Toni Reichmann (Chorgemeinschaft 1842 S.C.H. Ginsheim)
 
