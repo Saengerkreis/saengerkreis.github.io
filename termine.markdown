@@ -22,9 +22,9 @@ Unabhängig davon stehen schon einige Termine bereits fest:
 
 **03. Juli 2022, ab 11:00 Uhr, Sternfahrt des Sängerkreises Mainspitze, Mathildenplatz Kostheim,** Veranstalter Harmonie 1854 Kostheim
 
-**17. Juli 2022: "Humor im Chor: Tierisch was los" - Details folgen**, Jahreskonzert des [Gesangverein Einigkeit 1898 Gustavsburg](https://m.facebook.com/Gesangverein-Einigkeit-1898-Gustavsburg-eV-100307365726793/)
+**17. Juli 2022: "Humor im Chor: Tierisch was los"**, Jahreskonzert des [Gesangverein Einigkeit 1898 Gustavsburg](https://m.facebook.com/Gesangverein-Einigkeit-1898-Gustavsburg-eV-100307365726793/) - Details folgen
 
-**26. November 2022, Bürgerhaus Kostheim, Jahreskonzert des [MGV 1844 Kostheim](https://mgv1844.de/)
+**26. November 2022, Bürgerhaus Kostheim, Jahreskonzert des [MGV 1844 Kostheim](https://mgv1844.de/)**
 
-**26. November 2022, Stadtkirche Rüsselsheim, Weihnachtskonzert des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/)
+**26. November 2022, Stadtkirche Rüsselsheim, Weihnachtskonzert des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/)**
 <br><br><br><br><br><br><br><br><br><br><br>
