@@ -28,4 +28,8 @@ Unabhängig davon stehen schon einige Termine bereits fest:
 
 **26. November 2022, Stadtkirche Rüsselsheim, Weihnachtskonzert** des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/)
 
+**03.12.2022, evangelischen Kirche Bischofsheim, Weihnachtskonzert** des [Gesangverein Germania 1969 Bischofsheim](http://www.gesangvereingermania.de/)
+
+ 
+
 <br><br><br><br><br><br><br><br><br><br><br>
