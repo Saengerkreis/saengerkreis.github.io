@@ -14,7 +14,8 @@ Unabhängig davon stehen schon einige Termine bereits fest:
 
 **01. Mai 2022, ab 15:00 Uhr, Garten der Villa Herrmann, Mozartstraße 3, Gustavsburg: "Singen unterm Maibaum",** Veranstalter [Gesangverein Einigkeit 1898 Gustavsburg](https://m.facebook.com/Gesangverein-Einigkeit-1898-Gustavsburg-eV-100307365726793/)
 
-**07. Mai 2022, 19:15 Uhr, Bürgerhaus Kostheim: Muttertagskonzert der Chorgruppe Kostheim.** Eintritt frei, Spenden willkommen. Der Erlös wird zugunsten der Ukraine-Hilfe gespendet
+**07. Mai 2022, 19:15 Uhr, Bürgerhaus Kostheim: Muttertagskonzert der Chorgruppe Kostheim.** Eintritt frei, Spenden willkommen. 
+  **Der Erlös wird zugunsten der Ukraine-Hilfe gespendet**
 
 **11. Juni 2022, 17:00 Uhr, Stadttheater Rüsselsheim, Im Treff: "Italienischer Abend"** mit dem [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/)
 
