@@ -10,9 +10,9 @@ index: 4
 
 **Aufgrund der Öffnungsoptionen im Rahmen der aktuellen Corona-Verordnung des Landes Hessen haben viele Chöre ihre Probenarbeit wieder aufgenommen. Bitte erkundigen Sie sich bei dem Verein Ihres Interesses direkt.**
 
-Für die kommende Zeit stehen folgende Veranstaltungen an:
+Hier finden Sie aktuelle die Veranstaltungen der Chöre im Sängerkreis Mainspitze:
 
-**01. September 2022, 18.30 Uhr: "Schubert-Abend"** des [MGV Liederkranz 1875 Bischofsheim](http://www.liederkranz-bischofsheim.de/startseite/) - weitere Details folgen
+**01. September 2022, 18.30 Uhr, Schubertstraße Bischofsheim: "Schubert-Abend"** im Rahmen des [1. Kultursommers Bischofsheim](https://www.kultursommer-suedhessen.de/programm/veranstaltung/bischem-auf-seinen-plaetzen-erleben-schubert-lieder-in-der-schubert-strasse-01-09-2022-01-09-2022-18-30h-19-30h/2361) unter Mitwirkung des [Gesangverein Germania 1869 Bischofsheim](http://www.gesangvereingermania.de/) und des [MGV Liederkranz 1875 Bischofsheim](http://www.liederkranz-bischofsheim.de/startseite/) - weitere Details folgen
 
 **10. September 2022: "Spätsommerfest"** beim [Gesangverein Einigkeit 1898 Gustavsburg](https://m.facebook.com/Gesangverein-Einigkeit-1898-Gustavsburg-eV-100307365726793/) - Details folgen
 
