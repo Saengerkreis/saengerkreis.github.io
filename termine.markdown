@@ -8,21 +8,29 @@ index: 4
 # Termine
 <img style="width: 300px; float: right;" alt="Chor" src="/Saengerkreis/choir4.svg">
 
-**Aufgrund der Öffnungsoptionen im Rahmen der aktuellen Corona-Verordnung des Landes Hessen haben viele Chöre ihre Probenarbeit wieder aufgenommen. Bitte erkundigen Sie sich bei dem Verein Ihres Interesses direkt.**
-
 Hier finden Sie aktuelle die Veranstaltungen der Chöre im Sängerkreis Mainspitze:
 
-**01. September 2022, 18.30 Uhr, Schubertstraße Bischofsheim: "Schubert-Abend"** im Rahmen des [1. Kultursommers Bischofsheim](https://www.kultursommer-suedhessen.de/programm/veranstaltung/bischem-auf-seinen-plaetzen-erleben-schubert-lieder-in-der-schubert-strasse-01-09-2022-01-09-2022-18-30h-19-30h/2361) unter Mitwirkung des [Gesangverein Germania 1869 Bischofsheim](http://www.gesangvereingermania.de/) und des [MGV Liederkranz 1875 Bischofsheim](http://www.liederkranz-bischofsheim.de/startseite/) - weitere Details folgen
+**11. Februar 2023, 19:11 Uhr, Saalöffnung 17:33 Uhr, Bürgerhaus Kostheim: "Metzelsupp'"** Die traditionelle närrische Sitzung des [G.V. Harmonie 1854 Kostheim](http://gv-harmonie-1854.de/)
 
-**10. September 2022: "Spätsommerfest"** beim [Gesangverein Einigkeit 1898 Gustavsburg](https://m.facebook.com/Gesangverein-Einigkeit-1898-Gustavsburg-eV-100307365726793/) - Details folgen
+**13. Mai 2023, Bürgerhaus Kostheim: Muttertagskonzert** der Chorgruppe Kostheim
 
-**15. Oktober 2022, 20:00 Uhr, Theater Rüsselsheim, Am Treff 7: "40 Jahre Hanno Kirsch"** unter Mitwirkung u.a. des [Club Harmonie 1911 Rüsselsheim](https://club-harmonie.de/)
+**25. Juni 2023, Geminedehalle Mörstadt: Chorfestival** des MGV Abenheim unter Mitwirkung des [MGV 1844 Kostheim](https://mgv1844.de/)
 
-**26. November 2022, Bürgerhaus Kostheim: "Jahreskonzert"** des [MGV 1844 Kostheim](https://mgv1844.de/) - weitere Details folgen
+**08. Juli 2023, St. Marien Wiesbaden-Biebrich: Konzert** des [MGV 1841 Rheingold](https://www.mgv-1841-rheingold.de/index.php) unter Mitwirkung des [MGV 1844 Kostheim](https://mgv1844.de/)
 
-**26. November 2022, 17:00 Uhr, Stadtkirche Rüsselsheim: "Adventssingen"** des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - Mit Schirm, Charme und Noten am Puls der Zeit
+**21. oder 22. Juli 2023, 15:00 Uhr: "1. Kultursommer Rüsselsheim",** Veranstaltung unter Mitwirkung des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - Mit Schirm, Charme und Noten am Puls der Zeit
 
-**03. Dezember 2022, evangelischen Kirche Bischofsheim: "Weihnachtskonzert"** des [Gesangverein Germania 1869 Bischofsheim](http://www.gesangvereingermania.de/) - Details folgen
+**23. September 2023, 18:30 Uhr: "Tanz-Konzert" in der Tanzschule Heidi,** Am Treff 9, Rüsselsheim, unter Mitwirkung des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - Mit Schirm, Charme und Noten am Puls der Zeit
+
+**14. Oktober 2023, Bürgerhaus Kostheim: Das etwas andere Weinfest** mit dem [MGV 1844 Kostheim](https://mgv1844.de/)
+
+**15. Oktober 2023, Gustavsburg: Jubiläumskonzert** des [Gesangverein "Einigleit" Gutstavsburg 1898](https://www.facebook.com/people/Gesangverein-Einigkeit-1898-Gustavsburg-eV/100072045551855/?ref=page_internal)
+
+**12. November 2023: Liederabend** des Frauenchors des [MGV Mozart Trebur 1855](https://www.mozart-trebur.de/index.php)
+
+**02. Dezember 2023, 16:30 Uhr: Adventskonzert** des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - Mit Schirm, Charme und Noten am Puls der Zeit
+
+
 
  
 
