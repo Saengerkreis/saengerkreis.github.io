@@ -14,19 +14,19 @@ Der Sängerkreis Mainspitze ist Mitglied des Hessischen Sängerbundes im Deutsch
 
 1\. Vorsitzende: Dr. Kirsten Thelen (Capriccio Musicale)
 
-2\. Vorsitzende: Anette Reichel (Chorgemeinschaft 1842 S.C.H. Ginsheim)
+2\. Vorsitzender: Jürgen Hübner (Männergesangverein 1844 Kostheim)
 
 Kreis-Chorleiter: Hanno Kirsch (u.a. Club Harmonie 1911 Rüsselsheim)
 
 1\. Schriftführerin: Monika Preuße (Chorgemeinschaft 1842 S.C.H. Ginsheim, MGV Mozart 1855 Trebur)
 
-2\. Schriftführerin: Franka Niendorf (Chorgemeinschaft 1842 S.C.H. Ginsheim)
+2\. Schriftführer: Reiner Strohm (Männergesangverein 1844 Kostheim)
 
 Kassierer: Toni Reichmann (Chorgemeinschaft 1842 S.C.H. Ginsheim)
 
 Beisitzer:
 - Ursula Höfeld (Liederkranz 1854 Rüsselsheim)
 - Dieter Rauch (Germania 1869 Bischofsheim)
-- Jürgen Hübner (MGV 1844 Kostheim, Harmonie 1854 Kostheim)
+- Ann Kristin Handel (Gesangverein "Einigkei" 1898 Gustavsburg)
 
 Ehrenvorsitzender: Werner Traiser (MGV Mozart 1855 Trebur, Club Harmonie 1911 Rüsselsheim)
