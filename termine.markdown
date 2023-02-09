@@ -26,6 +26,8 @@ Hier finden Sie aktuelle die Veranstaltungen der Chöre im Sängerkreis Mainspit
 
 **15. Oktober 2023, Gustavsburg: Jubiläumskonzert** des [Gesangverein "Einigleit" Gutstavsburg 1898](https://www.facebook.com/people/Gesangverein-Einigkeit-1898-Gustavsburg-eV/100072045551855/?ref=page_internal)
 
+**05. November 2023 und 12. November 2023, Ort noch offen: Konzert** des [GV Germania 1857 Raunheim](https://germania-raunheim.de/) mit dem [Gesangverein MGV Mozart Trebur 1855](https://www.mozart-trebur.de/)
+
 **12. November 2023: Liederabend** des Frauenchors des [MGV Mozart Trebur 1855](https://www.mozart-trebur.de/index.php)
 
 **02. Dezember 2023, 16:30 Uhr: Adventskonzert** des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - Mit Schirm, Charme und Noten am Puls der Zeit
