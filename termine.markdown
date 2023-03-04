@@ -12,21 +12,21 @@ Hier finden Sie aktuelle die Veranstaltungen der Chöre im Sängerkreis Mainspit
 
 **11. Februar 2023, 19:11 Uhr, Saalöffnung 17:33 Uhr, Bürgerhaus Kostheim: "Metzelsupp'"** Die traditionelle närrische Sitzung des [G.V. Harmonie 1854 Kostheim](http://gv-harmonie-1854.de/)
 
-**13. Mai 2023, Bürgerhaus Kostheim: Muttertagskonzert** der Chorgruppe Kostheim
+**13. Mai 2023, Bürgerhaus Kostheim: Muttertagskonzert** der Chorgruppe Kostheim, Winterstraße 20, 55246 Mainz-Kostheim
 
-**25. Juni 2023, Gemeindehalle Mörstadt: Chorfestival** des MGV Abenheim unter Mitwirkung des [MGV 1844 Kostheim](https://mgv1844.de/)
+**25. Juni 2023, Gemeindehalle Mörstadt: Chorfestival** des MGV Abenheim unter Mitwirkung des [MGV 1844 Kostheim](https://mgv1844.de/), Kriegsheimer Straße, 67591 Mörstadt
 
-**08. Juli 2023, St. Marien Wiesbaden-Biebrich: Konzert** des [MGV 1841 Rheingold](https://www.mgv-1841-rheingold.de/index.php) unter Mitwirkung des [MGV 1844 Kostheim](https://mgv1844.de/)
+**08. Juli 2023, St. Marien Wiesbaden-Biebrich: Konzert** des [MGV 1841 Rheingold](https://www.mgv-1841-rheingold.de/index.php) unter Mitwirkung des [MGV 1844 Kostheim](https://mgv1844.de/), Breslauer Straße 1, 65203 Wiesbaden
 
 **21. oder 22. Juli 2023, 15:00 Uhr: "1. Kultursommer Rüsselsheim",** Veranstaltung unter Mitwirkung des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - Mit Schirm, Charme und Noten am Puls der Zeit
 
-**26. August 2023, Bürgerhaus Kostheim: Jahreskonzert** des [Gesangverein Harmonie 1854 Mainz-Kostheim](http://gv-harmonie-1854.de/)
+**26. August 2023, Bürgerhaus Kostheim: Jahreskonzert** des [Gesangverein Harmonie 1854 Mainz-Kostheim](http://gv-harmonie-1854.de/), Winterstraße 20, 55246 Mainz-Kostheim
 
-**10. September 2023, Mathildenhof Mainz-Kostheim: Musikalische Weinprobe** mit dem [Gesangverein Harmonie 1854 Mainz-Kostheim](http://gv-harmonie-1854.de/)
+**10. September 2023, Mathildenhof Mainz-Kostheim: Musikalische Weinprobe** mit dem [Gesangverein Harmonie 1854 Mainz-Kostheim](http://gv-harmonie-1854.de/),  Mathildenstraße 109, 55246 Mainz-Kostheim
 
 **23. September 2023, 18:30 Uhr: "Tanz-Konzert" in der Tanzschule Heidi,** Am Treff 9, Rüsselsheim, unter Mitwirkung des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - Mit Schirm, Charme und Noten am Puls der Zeit
 
-**14. Oktober 2023, Bürgerhaus Kostheim: Das etwas andere Weinfest** mit dem [MGV 1844 Kostheim](https://mgv1844.de/)
+**14. Oktober 2023, Bürgerhaus Kostheim: Das etwas andere Weinfest** mit dem [MGV 1844 Kostheim](https://mgv1844.de/), Winterstraße 20, 55246 Mainz-Kostheim
 
 **15. Oktober 2023, Gustavsburg: Jubiläumskonzert** des [Gesangverein "Einigleit" Gutstavsburg 1898](https://www.facebook.com/people/Gesangverein-Einigkeit-1898-Gustavsburg-eV/100072045551855/?ref=page_internal)
 
