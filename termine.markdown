@@ -20,6 +20,10 @@ Hier finden Sie aktuelle die Veranstaltungen der Chöre im Sängerkreis Mainspit
 
 **21. oder 22. Juli 2023, 15:00 Uhr: "1. Kultursommer Rüsselsheim",** Veranstaltung unter Mitwirkung des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - Mit Schirm, Charme und Noten am Puls der Zeit
 
+**26. August 2023, Bürgerhaus Kostheim: Jahreskonzert** des [Gesangverein Harmonie 1854 Mainz-Kostheim](http://gv-harmonie-1854.de/)
+
+**10. September 2023, Mathildenhof Mainz-Kostheim: Musikalische Weinprobe** mit dem [Gesangverein Harmonie 1854 Mainz-Kostheim](http://gv-harmonie-1854.de/)
+
 **23. September 2023, 18:30 Uhr: "Tanz-Konzert" in der Tanzschule Heidi,** Am Treff 9, Rüsselsheim, unter Mitwirkung des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - Mit Schirm, Charme und Noten am Puls der Zeit
 
 **14. Oktober 2023, Bürgerhaus Kostheim: Das etwas andere Weinfest** mit dem [MGV 1844 Kostheim](https://mgv1844.de/)
@@ -31,6 +35,8 @@ Hier finden Sie aktuelle die Veranstaltungen der Chöre im Sängerkreis Mainspit
 **12. November 2023: Liederabend** des Frauenchors des [MGV Mozart Trebur 1855](https://www.mozart-trebur.de/index.php)
 
 **02. Dezember 2023, 16:30 Uhr: Adventskonzert** des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - Mit Schirm, Charme und Noten am Puls der Zeit
+
+**28. Januar 2024, Theater Rüsselsheim, 17:00 Uhr: Kreis-Chorkonzert** des Sängerkreises Mainspitze, Am Treff 7
 
 
 
