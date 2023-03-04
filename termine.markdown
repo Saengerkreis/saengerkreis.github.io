@@ -34,9 +34,9 @@ Hier finden Sie aktuelle die Veranstaltungen der Chöre im Sängerkreis Mainspit
 
 **12. November 2023: Liederabend** des Frauenchors des [MGV Mozart Trebur 1855](https://www.mozart-trebur.de/index.php)
 
-**02. Dezember 2023, 16:30 Uhr: Adventskonzert** des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - Mit Schirm, Charme und Noten am Puls der Zeit
+**02. Dezember 2023, Stadtkirche Rüsselsheim, 16:30 Uhr: Adventskonzert** des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - Mit Schirm, Charme und Noten am Puls der Zeit, Marktplatz 7, 65428 Rüsselsheim
 
-**28. Januar 2024, Theater Rüsselsheim, 17:00 Uhr: Kreis-Chorkonzert** des Sängerkreises Mainspitze, Am Treff 7
+**28. Januar 2024, Theater Rüsselsheim, 17:00 Uhr: Kreis-Chorkonzert** des Sängerkreises Mainspitze, Am Treff 7, 65428 Rüsselsheim
 
 
 
