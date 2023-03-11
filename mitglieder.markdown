@@ -20,7 +20,12 @@ VocoMotion<br>
 Chor-i-Feen
 
 [Club Harmonie 1911 Rüsselsheim](http://club-harmonie.de/index.shtml)<br>
-Männergesangverein
+Männerchor
+
+[Concordia 1850 Nordenstadt e.V.](https://www.gvc-nordenstadt.de/)<br>
+Frauenchor<br>
+Männerchor<br>
+[Pop-Jazz-Chor Song'n'Swing](https://www.chor-singnswing.de/)<br>
 
 [Germania 1869 Bischofsheim](http://www.gesangvereingermania.de/)<br>
 Gemischter Chor<br>
@@ -51,12 +56,14 @@ Gemischter Chor
 [GV Volksliederbund 1905 Flörsheim](http://www.volksliederbund.de/)<br>
 Männerchor
 
+[MGV 1841 Rheingold Wiesbaden Biebrich](https://www.mgv-1841-rheingold.de/)<br>
+Männerchor
+
 [MGV 1844 Kostheim](http://mgv1844.de/)<br>
 Männerchor
 
 [MGV Liederkranz 1875 e.V. Bischofsheim](http://www.liederkranz-bischofsheim.de/)<br>
-Frauenchor<br>
-Männerchor
+Gemischer Chor
 
 [Sport- und Sängervereinigung 1911 e.V., Abt. Gesang Raunheim](https://www.ssv-raunheim.de/abteilungen/gesang/)<br>
 Kinderchor "Ohrwürmer"
