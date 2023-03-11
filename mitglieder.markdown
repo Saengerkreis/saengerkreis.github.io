@@ -24,7 +24,7 @@ Männerchor
 [Concordia 1850 Nordenstadt e.V.](https://www.gvc-nordenstadt.de/)<br>
 Frauenchor<br>
 Männerchor<br>
-[Pop-Jazz-Chor Song'n'Swing](https://www.chor-singnswing.de/)<br>
+[Pop-Jazz-Chor Sing'n'Swing](https://www.chor-singnswing.de/)<br>
 
 [Germania 1869 Bischofsheim](http://www.gesangvereingermania.de/)<br>
 Gemischter Chor<br>
