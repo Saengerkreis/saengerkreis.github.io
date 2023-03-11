@@ -12,7 +12,6 @@ Hier finden Sie in alphabetischer Reihenfolge unsere Mitglieder, die Vereine mit
 
 [Capriccio Musicale](http://www.capriccio-musicale.de/)<br>
 Frauenkammerchor<br>
-Kontakt: Dr. Kirsten Thelen, Tel.: 06134-555630
 
 [Chorgemeinschaft S.C.H. 1842 Ginsheim](http://www.chorgemeinschaft-ginsheim.de/)<br>
 Gemischter Chor<br>
