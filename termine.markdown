@@ -14,6 +14,8 @@ Hier finden Sie aktuelle die Veranstaltungen der Chöre im Sängerkreis Mainspit
 
 **13. Mai 2023, Bürgerhaus Kostheim: Muttertagskonzert** der Chorgruppe Kostheim, Winterstraße 20, 55246 Mainz-Kostheim
 
+**17. Juni 2023, Café Bizarr: Sing along** mit den [Disharmonix](https://www.mozart-trebur.de/52-die-ch%C3%B6re/disharmonix.html), Große Grabengasse 1, Trebur 
+
 **25. Juni 2023, Gemeindehalle Mörstadt: Chorfestival** des MGV Abenheim unter Mitwirkung des [MGV 1844 Kostheim](https://mgv1844.de/), Kriegsheimer Straße, 67591 Mörstadt
 
 **08. Juli 2023, St. Marien Wiesbaden-Biebrich: Konzert** des [MGV 1841 Rheingold](https://www.mgv-1841-rheingold.de/index.php) unter Mitwirkung des [MGV 1844 Kostheim](https://mgv1844.de/), Breslauer Straße 1, 65203 Wiesbaden
