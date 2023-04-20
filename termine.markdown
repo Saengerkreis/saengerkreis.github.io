@@ -18,7 +18,7 @@ Hier finden Sie aktuelle die Veranstaltungen der Chöre im Sängerkreis Mainspit
 
 **14. Mai 2023, 15:00 Uhr, Ev. Kirche Nordenstadt: Chorkonzert des Frauen- und Männerchors der [Concordia Nordenstadt](https://www.gvc-nordenstadt.de/) mit Stücken aus dem Musical TABALUGA**, Turmstraße 23, 65205 Wiesbaden-Nordenstadt
 
-**20.Mai 2023, 20:00 Uhr, Ev. Kirche Nordenstadt: Nordwind – Pop & Jazz treffen Tradition** Chorkonzert des [Pop-Jazz-Chors Sing'n'Swing])https://www.chor-singnswing.de/) und des [Steming Ensemble](http://stemning-ensemble.de/), Turmstraße 23, 65205 Wiesbaden-Nordenstadt
+**20.Mai 2023, 20:00 Uhr, Ev. Kirche Nordenstadt: Nordwind – Pop & Jazz treffen Tradition** Chorkonzert des [Pop-Jazz-Chors Sing'n'Swing](https://www.chor-singnswing.de/) und des [Steming Ensemble](http://stemning-ensemble.de/), Turmstraße 23, 65205 Wiesbaden-Nordenstadt
 
 **17. Juni 2023, Café Bizarr: Sing along** mit den [Disharmonix](https://www.mozart-trebur.de/52-die-ch%C3%B6re/disharmonix.html), Große Grabengasse 1, Trebur 
 
