@@ -12,7 +12,13 @@ Hier finden Sie aktuelle die Veranstaltungen der Chöre im Sängerkreis Mainspit
 
 **11. Februar 2023, 19:11 Uhr, Saalöffnung 17:33 Uhr, Bürgerhaus Kostheim: "Metzelsupp'"** Die traditionelle närrische Sitzung des [G.V. Harmonie 1854 Kostheim](http://gv-harmonie-1854.de/)
 
+**07.Mai 2023, 15:00 Uhr: Ländchesdom Delkenheim: Chorkonzert des Frauen- und Männerchors der [Concordia Nordenstadt](https://www.gvc-nordenstadt.de/) mit Stücken aus dem Musical TABALUGA**, Dekan-Lindenbein-Str.7, 65205 Wiesbaden Delkenheim
+
 **13. Mai 2023, Bürgerhaus Kostheim: Muttertagskonzert** der Chorgruppe Kostheim, Winterstraße 20, 55246 Mainz-Kostheim
+
+**14.Mai 2023, 15:00 Uhr: Ev. Kirche Nordenstadt: Chorkonzert des Frauen- und Männerchors der [Concordia Nordenstadt](https://www.gvc-nordenstadt.de/) mit Stücken aus dem Musical TABALUGA**, Turmstraße 23, 65205 Wiesbaden-Nordenstadt
+
+**20.Mai 2023, 20:00 Uhr: Ev. Kirche Nordenstadt: Nordwind – Pop & Jazz treffen Tradition** Chorkonzert des [Pop-Jazz-Chors Sing'n'Swing])https://www.chor-singnswing.de/) und des [Steming Ensemble](http://stemning-ensemble.de/), Turmstraße 23, 65205 Wiesbaden-Nordenstadt
 
 **17. Juni 2023, Café Bizarr: Sing along** mit den [Disharmonix](https://www.mozart-trebur.de/52-die-ch%C3%B6re/disharmonix.html), Große Grabengasse 1, Trebur 
 
@@ -30,7 +36,7 @@ Hier finden Sie aktuelle die Veranstaltungen der Chöre im Sängerkreis Mainspit
 
 **14. Oktober 2023, Bürgerhaus Kostheim: Das etwas andere Weinfest** mit dem [MGV 1844 Kostheim](https://mgv1844.de/), Winterstraße 20, 55246 Mainz-Kostheim
 
-**15. Oktober 2023, Gustavsburg: Jubiläumskonzert** des [Gesangverein "Einigleit" Gutstavsburg 1898](https://www.facebook.com/people/Gesangverein-Einigkeit-1898-Gustavsburg-eV/100072045551855/?ref=page_internal)
+**15. Oktober 2023, Gustavsburg: Jubiläumskonzert** des [Gesangverein "Einigkeit" Gutstavsburg 1898](https://www.facebook.com/people/Gesangverein-Einigkeit-1898-Gustavsburg-eV/100072045551855/?ref=page_internal)
 
 **05. November 2023 und 12. November 2023, Ort noch offen: Konzert** des [GV Germania 1857 Raunheim](https://germania-raunheim.de/) mit dem [Gesangverein MGV Mozart Trebur 1855](https://www.mozart-trebur.de/)
 
