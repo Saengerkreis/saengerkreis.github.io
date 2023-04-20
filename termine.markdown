@@ -14,7 +14,7 @@ Hier finden Sie aktuelle die Veranstaltungen der Chöre im Sängerkreis Mainspit
 
 **07. Mai 2023, 15:00 Uhr: Ländchesdom Delkenheim: Chorkonzert des Frauen- und Männerchors der [Concordia Nordenstadt](https://www.gvc-nordenstadt.de/) mit Stücken aus dem Musical TABALUGA**, Dekan-Lindenbein-Str.7, 65205 Wiesbaden Delkenheim
 
-**13. Mai 2023, Bürgerhaus Kostheim: Muttertagskonzert** der Chorgruppe Kostheim, Winterstraße 20, 55246 Mainz-Kostheim
+**13. Mai 2023, Bürgerhaus Kostheim, 19:15 Uhr (Saalöffnung 18:15 Uhr): Muttertagskonzert** der Chorgruppe Kostheim, Winterstraße 20, 55246 Mainz-Kostheim
 
 **14.Mai 2023, 15:00 Uhr, Ev. Kirche Nordenstadt: Chorkonzert des Frauen- und Männerchors der [Concordia Nordenstadt](https://www.gvc-nordenstadt.de/) mit Stücken aus dem Musical TABALUGA**, Turmstraße 23, 65205 Wiesbaden-Nordenstadt
 
