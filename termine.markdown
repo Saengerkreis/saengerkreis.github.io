@@ -8,31 +8,19 @@ index: 4
 # Termine
 <img style="width: 300px; float: right;" alt="Chor" src="/Saengerkreis/choir4.svg">
 
-Hier finden Sie aktuelle die Veranstaltungen der Chöre im Sängerkreis Mainspitze:
+Hier finden Sie die Veranstaltungen der Chöre im Sängerkreis Mainspitze:
 
-**11. Februar 2023, 19:11 Uhr, Saalöffnung 17:33 Uhr, Bürgerhaus Kostheim: "Metzelsupp'"** Die traditionelle närrische Sitzung des [G.V. Harmonie 1854 Kostheim](http://gv-harmonie-1854.de/)
+**08. Juli 2023, 17:00 Uhr: Konzert** des [MGV 1841 Rheingold](https://www.mgv-1841-rheingold.de/index.php) unter Mitwirkung des [MGV 1844 Kostheim](https://mgv1844.de/). St. Marien Wiesbaden-Biebrich, Breslauer Straße 1, 65203 Wiesbaden
 
-**07. Mai 2023, 15:00 Uhr: Ländchesdom Delkenheim: Chorkonzert des Frauen- und Männerchors der [Concordia Nordenstadt](https://www.gvc-nordenstadt.de/) mit Stücken aus dem Musical TABALUGA**, Dekan-Lindenbein-Str.7, 65205 Wiesbaden Delkenheim
+**22. Juli 2023, 15:00 Uhr: Familiensommerfest zum 125-jährigen Jubiläum** des [Gesangsverein Einigkeit 1898 Gustavsburg](https://www.facebook.com/profile.php?id=100072045551855&ref=page_internal). Haus der Vereine Gustavsburg, Pestalozzistraße 10, 65462 Gustavsburg.
 
-**13. Mai 2023, Bürgerhaus Kostheim, 19:15 Uhr (Saalöffnung 18:15 Uhr): Muttertagskonzert** der Chorgruppe Kostheim, Winterstraße 20, 55246 Mainz-Kostheim
+**22. Juli 2023, 18:00 Uhr: "1. Kultursommer Rüsselsheim", Konzert** des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - Mit Schirm, Charme und Noten am Puls der Zeit mit Tim Frühling. Festungshof Rüsselsheim, Hauptmann-Scheuermann-Weg 6, 65428 Rüsselsheim am Main
 
-**14. Mai 2023, 15:00 Uhr, Ev. Kirche Nordenstadt: Chorkonzert des Frauen- und Männerchors der [Concordia Nordenstadt](https://www.gvc-nordenstadt.de/) mit Stücken aus dem Musical TABALUGA**, Turmstraße 23, 65205 Wiesbaden-Nordenstadt
+**26. August 2023: Jahreskonzert** des [Gesangverein Harmonie 1854 Mainz-Kostheim](http://gv-harmonie-1854.de/). Bürgerhaus Kostheim, Winterstraße 20, 55246 Mainz-Kostheim
 
-**20.Mai 2023, 20:00 Uhr, Ev. Kirche Nordenstadt: Nordwind – Pop & Jazz treffen Tradition** Chorkonzert des [Pop-Jazz-Chors Sing'n'Swing](https://www.chor-singnswing.de/) und des [Steming Ensemble](http://stemning-ensemble.de/), Turmstraße 23, 65205 Wiesbaden-Nordenstadt
+**10. September 2023: Musikalische Weinprobe** mit dem [Gesangverein Harmonie 1854 Mainz-Kostheim](http://gv-harmonie-1854.de/). Mathildenhof Mainz-Kostheim, Mathildenstraße 109, 55246 Mainz-Kostheim
 
-**17. Juni 2023, Café Bizarr: Sing along** mit den [Disharmonix](https://www.mozart-trebur.de/52-die-ch%C3%B6re/disharmonix.html), Große Grabengasse 1, Trebur 
-
-**25. Juni 2023, Gemeindehalle Mörstadt: Chorfestival** des MGV Abenheim unter Mitwirkung des [MGV 1844 Kostheim](https://mgv1844.de/), Kriegsheimer Straße, 67591 Mörstadt
-
-**08. Juli 2023, St. Marien Wiesbaden-Biebrich: Konzert** des [MGV 1841 Rheingold](https://www.mgv-1841-rheingold.de/index.php) unter Mitwirkung des [MGV 1844 Kostheim](https://mgv1844.de/), Breslauer Straße 1, 65203 Wiesbaden
-
-**21. oder 22. Juli 2023, 15:00 Uhr: "1. Kultursommer Rüsselsheim",** Veranstaltung unter Mitwirkung des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - Mit Schirm, Charme und Noten am Puls der Zeit
-
-**26. August 2023, Bürgerhaus Kostheim: Jahreskonzert** des [Gesangverein Harmonie 1854 Mainz-Kostheim](http://gv-harmonie-1854.de/), Winterstraße 20, 55246 Mainz-Kostheim
-
-**10. September 2023, Mathildenhof Mainz-Kostheim: Musikalische Weinprobe** mit dem [Gesangverein Harmonie 1854 Mainz-Kostheim](http://gv-harmonie-1854.de/),  Mathildenstraße 109, 55246 Mainz-Kostheim
-
-**23. September 2023, 18:30 Uhr: "Tanz-Konzert" in der Tanzschule Heidi,** Am Treff 9, Rüsselsheim, unter Mitwirkung des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - Mit Schirm, Charme und Noten am Puls der Zeit
+**23. September 2023, 19:00 Uhr: Chor und Tanz "Sing mit Swing und Genuss mit Schuss** , mit dem [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - Mit Schirm, Charme und Noten am Puls der Zeit und der Tanzschule Stab. Heidis Tanztreff, Am Treff 9, Rüsselsheim. Einlass ab 18:30 Uhr
 
 **14. Oktober 2023, Bürgerhaus Kostheim: Das etwas andere Weinfest** mit dem [MGV 1844 Kostheim](https://mgv1844.de/), Winterstraße 20, 55246 Mainz-Kostheim
 
@@ -42,9 +30,9 @@ Hier finden Sie aktuelle die Veranstaltungen der Chöre im Sängerkreis Mainspit
 
 **12. November 2023: Liederabend** des Frauenchors des [MGV Mozart Trebur 1855](https://www.mozart-trebur.de/index.php)
 
-**02. Dezember 2023, Stadtkirche Rüsselsheim, 16:30 Uhr: Adventskonzert** des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - Mit Schirm, Charme und Noten am Puls der Zeit, Marktplatz 7, 65428 Rüsselsheim
+**02. Dezember 2023, 16:30 Uhr: Adventskonzert** des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - Mit Schirm, Charme und Noten am Puls der Zeit, Stadtkirche Rüsselsheim, Marktplatz 7, 65428 Rüsselsheim
 
-**28. Januar 2024, Theater Rüsselsheim, 17:00 Uhr: Kreis-Chorkonzert** des Sängerkreises Mainspitze, Am Treff 7, 65428 Rüsselsheim
+**28. Januar 2024, 17:00 Uhr: Kreis-Chorkonzert** des Sängerkreises Mainspitze, Theater Rüsselsheim, Am Treff 7, 65428 Rüsselsheim
 
 
 
