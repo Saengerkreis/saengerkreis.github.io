@@ -35,7 +35,7 @@ Frauenchor<br>
 Männerchor<br>
 Junger Chor
 
-[Gesangverein MGV Mozart Trebur](http://www.mozart-trebur.de/)<br>
+[Gesangverein MGV Mozart Trebur](http://www.mgv-trebur.de/)<br>
 Frauenchor<br>
 Männerchor<br>
 Gemischter Chor "Disharmonix"
