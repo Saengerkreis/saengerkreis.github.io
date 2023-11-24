@@ -22,7 +22,10 @@ Singen im Chor - das heißt zuhören, verstehen und Freude geben in einer Gemein
 
 Viel Spaß auf diesen Seiten! Vielleicht bekommen Sie ja Lust auf mehr... Dann besuchen Sie doch einfach eines unserer Konzerte! Oder: Singen Sie gleich mit! Unter den zahlreichen Mitgliedern findet sich sicher auch der passende Chor für Sie.
 
-Eine besonders gut Gelegenheit, die Chöre im Sängerkreis Mainspitze kennen zu lernen, ist das Kreis-Chorkonzert am 28. Januar 2024 im Theater Rüsselsheim. Tickets unter:
- 
-<img style="width: 100px; float: left;" alt="Tickets" src="/Saengerkreis/qrtickets.png" hspace="10" vspace="10">
+Eine besonders gut Gelegenheit, die Chöre im Sängerkreis Mainspitze kennen zu lernen, ist das Kreis-Chorkonzert am 28. Januar 2024 im Theater Rüsselsheim. 
 
+**Aktion Tickets unterm Weihnachtsbaum: Vom 20% Rabatt auf Konzertkarten 04. - 12. Dezember 2023**. Konzertkarten als Weihnachtsgeschenk sind eine tolle Idee!
+
+Tickets unter: <img style="width: 100px; float: left;" alt="Tickets" src="/Saengerkreis/qrtickets.png" hspace="10" vspace="10">
+
+(https://theater-ruesselsheim.reservix.de/p/reservix/event/2130664)
