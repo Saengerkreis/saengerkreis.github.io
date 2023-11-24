@@ -28,5 +28,6 @@ Eine besonders gut Gelegenheit, die Chöre im Sängerkreis Mainspitze kennen zu 
 
 Konzertkarten als Weihnachtsgeschenk - eine tolle Idee!
 
-Tickets gibt es im [Ticketshop Kultur123](https://theater-ruesselsheim.reservix.de/p/reservix/event/2130664)
+Tickets gibt es im [Ticketshop von Kultur123](https://theater-ruesselsheim.reservix.de/p/reservix/event/2130664)
+
 <img style="width: 100px; float: left;" alt="Tickets" src="/Saengerkreis/qrtickets.png" hspace="10" vspace="10">
