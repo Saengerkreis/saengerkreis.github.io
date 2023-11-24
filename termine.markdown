@@ -34,7 +34,9 @@ Hier finden Sie die Veranstaltungen der Chöre im Sängerkreis Mainspitze:
 
 **09. Dezember 2023, 15:00 Uhr: Adventskonzert** des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - Mit Schirm, Charme und Noten am Puls der Zeit, Stadtkirche Rüsselsheim, Marktplatz 7, 65428 Rüsselsheim
 
-**28. Januar 2024, 17:00 Uhr: Kreis-Chorkonzert** des Sängerkreises Mainspitze, Theater Rüsselsheim, Am Treff 7, 65428 Rüsselsheim
+**09. Dezember 2023, 17:00 Uhr: Weihnachtskonzert** des [Gesangvereins Germania Bischofsheim](https://www.gesangvereingermania.de/) gemeinsam mit den ["Happy Voices"](https://www.gvg-happyvoices.de/) in der Christkönig-Kirche, Hochheimer Str. 3, 65474 Bischofsheim
+
+**28. Januar 2024, 17:00 Uhr: Kreis-Chorkonzert** des Sängerkreises Mainspitze, Theater Rüsselsheim, Am Treff 7, 65428 Rüsselsheim, Tickets unter (https://theater-ruesselsheim.reservix.de/p/reservix/event/2130664)
 
 
 
