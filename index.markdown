@@ -22,6 +22,10 @@ Singen im Chor - das heißt zuhören, verstehen und Freude geben in einer Gemein
 
 Viel Spaß auf diesen Seiten! Vielleicht bekommen Sie ja Lust auf mehr... Dann besuchen Sie doch einfach eines unserer Konzerte! Oder: Singen Sie gleich mit! Unter den zahlreichen Mitgliedern findet sich sicher auch der passende Chor für Sie.
 
+**AKTUELLES**
+
+Am 27. Januar 2024 kommen Karnevalisten und Fassenachter bei der **Metzelsupp** des [Gesangverein Harmonie 1854 Kostheim](http://gv-harmonie-1854.de/) auf ihre Kosten.
+
 Eine besonders gut Gelegenheit, die Chöre im Sängerkreis Mainspitze kennen zu lernen, ist das Kreis-Chorkonzert am 28. Januar 2024 im Theater Rüsselsheim. 
 
 Konzertkarten sind auch nach Weihnachen immer eine gute Geschenkidee!
