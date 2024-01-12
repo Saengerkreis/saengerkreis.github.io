@@ -26,6 +26,8 @@ Viel Spaß auf diesen Seiten! Vielleicht bekommen Sie ja Lust auf mehr... Dann b
 
 Am 27. Januar 2024 kommen Karnevalisten und Fassenachter bei der **Metzelsupp** des [Gesangverein Harmonie 1854 Kostheim](http://gv-harmonie-1854.de/) auf ihre Kosten.
 
+<img style="width: 150px; float: mid;" alt="Metzelsupp" src="/Saengerkreis/Metzelsupp.png" hspace="10" vspace="10">
+
 Eine besonders gut Gelegenheit, die Chöre im Sängerkreis Mainspitze kennen zu lernen, ist das Kreis-Chorkonzert am 28. Januar 2024 im Theater Rüsselsheim. 
 
 Konzertkarten sind auch nach Weihnachen immer eine gute Geschenkidee!
