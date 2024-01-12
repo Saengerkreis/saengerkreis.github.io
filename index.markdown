@@ -24,9 +24,7 @@ Viel Spaß auf diesen Seiten! Vielleicht bekommen Sie ja Lust auf mehr... Dann b
 
 Eine besonders gut Gelegenheit, die Chöre im Sängerkreis Mainspitze kennen zu lernen, ist das Kreis-Chorkonzert am 28. Januar 2024 im Theater Rüsselsheim. 
 
-**Aktion Tickets unterm Weihnachtsbaum: Vom 20% Rabatt auf Konzertkarten 04. - 12. Dezember 2023**. 
-
-Konzertkarten als Weihnachtsgeschenk - eine tolle Idee!
+Konzertkarten sind auch nach Weihnachen immer eine gute Geschenkidee!
 
 Tickets gibt es im [Ticketshop von Kultur123](https://theater-ruesselsheim.reservix.de/p/reservix/event/2130664)
 
