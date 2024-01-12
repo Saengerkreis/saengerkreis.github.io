@@ -36,6 +36,8 @@ Hier finden Sie die Veranstaltungen der Chöre im Sängerkreis Mainspitze:
 
 **09. Dezember 2023, 17:00 Uhr: Weihnachtskonzert** des [Gesangvereins Germania Bischofsheim](https://www.gesangvereingermania.de/) gemeinsam mit den ["Happy Voices"](https://www.gvg-happyvoices.de/) in der Christkönig-Kirche, Hochheimer Str. 3, 65474 Bischofsheim
 
+**27. Januar 2024, 19:11 Uhr (Einlass: 17:11 Uhr): Metzelsupp**, die Karnevalssitzung des [Gesangverein Harmonie 1854 Kostheim](http://gv-harmonie-1854.de/), Bürgerhaus Kostheim, Winterstraße 20, 55246 Kostheim. Im Eintrittspreis enthalen ist eine wuch in einer veganen Version erhältliche Schlachtplatte, die ab 18:11 Uhr gereicht wird
+
 **28. Januar 2024, 17:00 Uhr: Kreis-Chorkonzert** des Sängerkreises Mainspitze, Theater Rüsselsheim, Am Treff 7, 65428 Rüsselsheim, Tickets im [Ticketshop von Kultur123](https://theater-ruesselsheim.reservix.de/p/reservix/event/2130664)
 
 
