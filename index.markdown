@@ -24,5 +24,5 @@ Viel Spaß auf diesen Seiten! Vielleicht bekommen Sie ja Lust auf mehr... Dann b
 
 **AKTUELLES**
 
-Eine besonders gute Gelegenheit, die Chöre im Sängerkreis Mainspitze kennen zu lernen, war das Kreis-Chorkonzert am 28. Januar 2024 im Theater Rüsselsheim. Wer keine Gelegenheit hatte, das Konzert zu besuchen, kann [hier](https://www.youtube.com/watch?v=4QLIs68dF_0) (Link zu Youtube) einen Blick vor und hinter die Kulissen tun. Lukas Hietel vom [MGV 1844 Kostheim](https://mgv1844.de/) war mir der Kamera dabei.
+Eine besonders gute Gelegenheit, die Chöre im Sängerkreis Mainspitze kennen zu lernen, war das Kreis-Chorkonzert am 28. Januar 2024 im Theater Rüsselsheim. Wer keine Gelegenheit hatte, das Konzert zu besuchen, kann [hier](https://www.youtube.com/watch?v=4QLIs68dF_0) (Link zu Youtube) einen Blick vor und hinter die Kulissen tun. Lukas Hietel vom [MGV 1844 Kostheim](https://mgv1844.de/) war mit der Kamera dabei.
 
