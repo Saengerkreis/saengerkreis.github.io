@@ -21,7 +21,7 @@ VocoMotion. Literatur: Pop, Schlager<br>
 Chor-i-Feen (z. Zt. ausgesetzt)
 
 [Club Harmonie 1911 Rüsselsheim](http://club-harmonie.de/index.shtml)<br>
-Männerchor. Literatur: Traditionell<br>
+Männerchor. Literatur: Traditionell bis Modern<br>
 
 [Concordia 1850 Nordenstadt e.V.](https://www.gvc-nordenstadt.de/)<br>
 Frauenchor. Literatur: Traditionell<br>
