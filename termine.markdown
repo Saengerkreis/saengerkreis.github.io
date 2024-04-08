@@ -15,7 +15,7 @@ Hier finden Sie die Veranstaltungen der Chöre im Sängerkreis Mainspitze:
 
 **28. Januar 2024, 17:00 Uhr: Kreis-Chorkonzert** des Sängerkreises Mainspitze, Theater Rüsselsheim, Am Treff 7, 65428 Rüsselsheim, Tickets im [Ticketshop von Kultur123](https://theater-ruesselsheim.reservix.de/p/reservix/event/2130664)
 
-**11. Mai.2024, 19:15 Uhr: Muttertagskonzert** der Chorgruppe Kostheim unter Mitwirkung von [Gesangverein Harmonie 1854 Kostheim](http://gv-harmonie-1854.de/) und [MGV 1844 Kostheim](https://mgv1844.de/) sowie dem [Musikverein Concordia](https://www.musikverein-concordia.de/)
+**11. Mai.2024, 19:15 Uhr: Muttertagskonzert** der Chorgruppe Kostheim unter Mitwirkung von [Gesangverein Harmonie 1854 Kostheim](http://gv-harmonie-1854.de/) und [MGV 1844 Kostheim](https://mgv1844.de/) sowie dem [Musikverein Concordia](https://www.musikverein-concordia.de/), Bürgerhaus Kostheim, Winterstraße 20, 55246 Kostheim. 
 
  
 
