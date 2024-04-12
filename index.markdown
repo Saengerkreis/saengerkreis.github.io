@@ -25,6 +25,7 @@ Viel Spaß auf diesen Seiten! Vielleicht bekommen Sie ja Lust auf mehr... Dann b
 **AKTUELLES**
 
 Nur noch wenige Wochen, dann steht das traditionelle Muttertagskonzert der Chorgruppe Kostheim auf dem Programm: am **Samstag, 11. Mai 2024** kann frau sich ab **19:15 Uhr** im **Bürgerhaus Kostheim** musikalisch verzaubern lassen.
+<p></p>
 
 <img style="width: 250px; float: left;" alt="Muttertagskonzert2024" src="/Saengerkreis/Muttertagskonzert2024.png" hspace="10" vspace="10">
 
