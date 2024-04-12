@@ -33,4 +33,4 @@ Nur noch wenige Wochen, dann steht das traditionelle Muttertagskonzert der Chorg
 Eine besonders gute Gelegenheit, die Chöre im Sängerkreis Mainspitze kennen zu lernen, war das Kreis-Chorkonzert am 28. Januar 2024 im Theater Rüsselsheim. Wer keine Gelegenheit hatte, das Konzert zu besuchen, kann sich [hier](https://www.youtube.com/watch?v=uSPt-ZV9jes) (Link zu Youtube) den Mitschnitt des gemeinsamen Abschlussliedes "Klänge der Freude" mit rund 300 Sängerinnen und Sängern anhören und ansehen. [Hier](https://www.youtube.com/watch?v=4QLIs68dF_0) (Link zu Youtube) kann man einen Blick vor und hinter die Kulissen tun. Lukas Hietel vom [MGV 1844 Kostheim](https://mgv1844.de/) war mit der Kamera dabei.
 
 <p></p>
-<img style="width: 250px; float: left;" alt="Kreischorkonzert" src="/Saengerkreis/Flyer-Kreis-Chorkonzert.jpg" hspace="10" vspace="10">
+<img style="width: 250px; float: right;" alt="Kreischorkonzert" src="/Saengerkreis/Flyer-Kreis-Chorkonzert.jpg" hspace="10" vspace="10">
