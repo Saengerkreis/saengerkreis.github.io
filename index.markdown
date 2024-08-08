@@ -34,15 +34,11 @@ Am **Sonntag, 22. September 2024, 18:00 Uhr (Einlass 17:00 Uhr)** findet nach la
 
 **Nicht mehr aktuell, aber trotzdem schön**
 
-Wie immer am Samstag vor Muttertag fand am **Samstag, 11. Mai 2024** im **Bürgerhaus Kostheim** das traditionelle Muttertagskonzert statt
-<p></p>
 
 <img style="width: 250px; float: left;" alt="Muttertagskonzert2024" src="/Saengerkreis/Muttertagskonzert2024.jpg" hspace="10" vspace="10">
 
-<p></p>
-<p></p>
+
 <img style="width: 250px; float: right;" alt="Kreischorkonzert" src="/Saengerkreis/Flyer-Kreis-Chorkonzert.jpg" hspace="10" vspace="10">
-<p></p>
-Eine besonders gute Gelegenheit, die Chöre im Sängerkreis Mainspitze kennen zu lernen, war das Kreis-Chorkonzert am 28. Januar 2024 im Theater Rüsselsheim. Wer keine Gelegenheit hatte, das Konzert zu besuchen, kann sich [hier](https://www.youtube.com/watch?v=uSPt-ZV9jes) (Link zu Youtube) den Mitschnitt des gemeinsamen Abschlussliedes "Klänge der Freude" mit rund 300 Sängerinnen und Sängern anhören und ansehen. [Hier](https://www.youtube.com/watch?v=4QLIs68dF_0) (Link zu Youtube) kann man einen Blick vor und hinter die Kulissen tun. Lukas Hietel vom [MGV 1844 Kostheim](https://mgv1844.de/) war mit der Kamera dabei.
+
 
 
