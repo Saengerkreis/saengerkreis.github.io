@@ -24,7 +24,11 @@ Viel Spaß auf diesen Seiten! Vielleicht bekommen Sie ja Lust auf mehr... Dann b
 
 **AKTUELLES**
 
-Nur noch wenige Wochen, dann steht das traditionelle Muttertagskonzert der Chorgruppe Kostheim auf dem Programm: am **Samstag, 11. Mai 2024** kann frau sich ab **19:15 Uhr** im **Bürgerhaus Kostheim** musikalisch verzaubern lassen.
+Am **Sonntag, 22. September 2024** findet ein ganz besonderes chorisches Highlight statt: Der **Abend der Chöre** des Kreises Groß-Gerau und der Sparkassen-Stiftung Groß-Gerau mit drei durch eine Jury ausgewählten Chören aus den Sängerkreises Mainspitze und Groß-Gerau: Der **Germania 1857 Raunheim**, den **Greensingers Stockstadt** und dem **Walldorfer Giospelchor**. Karten gibt es [hier](https://grossgerau.reservix.de) 
+<p></p>
+
+
+Wie immer am Samstag vor Muttertag fand am **Samstag, 11. Mai 2024** im **Bürgerhaus Kostheim** das traditionelle Muttertagskonzert statt
 <p></p>
 
 <img style="width: 250px; float: left;" alt="Muttertagskonzert2024" src="/Saengerkreis/Muttertagskonzert2024.jpg" hspace="10" vspace="10">
