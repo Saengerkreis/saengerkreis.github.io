@@ -30,6 +30,8 @@ Der MGV 1844 Kostheim lädt am **Sonntag, 18. August 2024, ab 11:00 Uhr** zur St
 
 <p></p>
 
+<p></p>
+
 Am **Sonntag, 22. September 2024, 18:00 Uhr (Einlass 17:00 Uhr)** findet nach langer Corona-Pause endlich wieder ein ganz besonderes chorisches Highlight statt: Der **Abend der Chöre** des Kreises Groß-Gerau und der Sparkassen-Stiftung Groß-Gerau mit drei durch eine Jury ausgewählten Chören aus den Sängerkreises Mainspitze und Groß-Gerau: Der **Germania 1857 Raunheim**, den **Greensingers Stockstadt** und dem **Walldorfer Gospelchor**. Karten ab € 12,20 gibt es [hier](https://grossgerau.reservix.de). Inkludiert ist ein Sektempfang ab 17:00 Uhr vor der Saalöffnung am 17:45 Uhr.
 
 <img style="width: 250px; float: left;" alt="Abend-der-Chöre" src="/Saengerkreis/Abend-der-Chöre-2024-Plakat.jpg" hspace="10" vspace="10">
