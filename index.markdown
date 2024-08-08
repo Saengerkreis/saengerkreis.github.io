@@ -30,6 +30,8 @@ Am **Sonntag, 22. September 2024, 18:00 Uhr (Einlass 17:00 Uhr)** findet nach la
 <p></p>
 <img style="width: 250px; float: left;" alt="Abend-der-Chöre" src="/Saengerkreis/Abend-der-Chöre-2024-Plakat.jpg" hspace="10" vspace="10">
 
+<p></p>
+
 **Nicht mehr aktuell, aber trotzdem schön**
 
 Wie immer am Samstag vor Muttertag fand am **Samstag, 11. Mai 2024** im **Bürgerhaus Kostheim** das traditionelle Muttertagskonzert statt
