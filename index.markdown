@@ -37,7 +37,7 @@ Wie immer am Samstag vor Muttertag fand am **Samstag, 11. Mai 2024** im **Bürge
 
 <img style="width: 250px; float: left;" alt="Muttertagskonzert2024" src="/Saengerkreis/Muttertagskonzert2024.jpg" hspace="10" vspace="10">
 
-
+<p></p>
 <p></p>
 <img style="width: 250px; float: right;" alt="Kreischorkonzert" src="/Saengerkreis/Flyer-Kreis-Chorkonzert.jpg" hspace="10" vspace="10">
 <p></p>
