@@ -11,11 +11,11 @@ index: 4
 Hier finden Sie die Veranstaltungen der Chöre im Sängerkreis Mainspitze:
 
 
-**27. Januar 2024, 19:11 Uhr (Einlass: 17:11 Uhr): Metzelsupp**, die Karnevalssitzung des [Gesangverein Harmonie 1854 Kostheim](http://gv-harmonie-1854.de/), Bürgerhaus Kostheim, Winterstraße 20, 55246 Kostheim. Im Eintrittspreis enthalen ist eine wuch in einer veganen Version erhältliche Schlachtplatte, die ab 18:11 Uhr gereicht wird
+**18. August 2024, 11:00 Uhr: Sternfahrt**, des Sängerkreises auf den Kostheimer Mathildenhof. Es lädt ein der [MGV 1844 Kostheim](https://mgv1844.de/).
 
-**28. Januar 2024, 17:00 Uhr: Kreis-Chorkonzert** des Sängerkreises Mainspitze, Theater Rüsselsheim, Am Treff 7, 65428 Rüsselsheim, Tickets im [Ticketshop von Kultur123](https://theater-ruesselsheim.reservix.de/p/reservix/event/2130664)
+**22. September 2024, 18:00 Uhr (Einlass 17:00 Uhr): Abend der Chöre** des Kreises Groß-Gerau unter Mitwirkung der [Germania 1857 Raunheim](https://germania-raunheim.de/), der [Greensingers aus Stockstadt](https://www.greensingers.de/) und des [Walldorfer Gospelchor](https://www.walldorfer-gospelchor.de/).  Karten ab € 12,20 gibt es [hier](https://grossgerau.reservix.de/events). Im Ticketpreis ist ein Sektempfang ab 17:00 Uhr bis zur Saalöffnung um 17:45 Uhr inkludiert.
 
-**11. Mai.2024, 19:15 Uhr: Muttertagskonzert** der Chorgruppe Kostheim unter Mitwirkung von [Gesangverein Harmonie 1854 Kostheim](http://gv-harmonie-1854.de/) und [MGV 1844 Kostheim](https://mgv1844.de/) sowie dem [Musikverein Concordia](https://www.musikverein-concordia.de/), Bürgerhaus Kostheim, Winterstraße 20, 55246 Kostheim. 
+
 
  
 
