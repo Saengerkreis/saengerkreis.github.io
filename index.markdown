@@ -24,9 +24,13 @@ Viel Spaß auf diesen Seiten! Vielleicht bekommen Sie ja Lust auf mehr... Dann b
 
 **AKTUELLES**
 
-Am **Sonntag, 22. September 2024** findet ein ganz besonderes chorisches Highlight statt: Der **Abend der Chöre** des Kreises Groß-Gerau und der Sparkassen-Stiftung Groß-Gerau mit drei durch eine Jury ausgewählten Chören aus den Sängerkreises Mainspitze und Groß-Gerau: Der **Germania 1857 Raunheim**, den **Greensingers Stockstadt** und dem **Walldorfer Giospelchor**. Karten gibt es [hier](https://grossgerau.reservix.de) 
-<p></p>
 
+
+Am **Sonntag, 22. September 2024, 18:00 Uhr (Einlass 17:00 Uhr)** findet nach langer Corona-Pause endlich wieder ein ganz besonderes chorisches Highlight statt: Der **Abend der Chöre** des Kreises Groß-Gerau und der Sparkassen-Stiftung Groß-Gerau mit drei durch eine Jury ausgewählten Chören aus den Sängerkreises Mainspitze und Groß-Gerau: Der **Germania 1857 Raunheim**, den **Greensingers Stockstadt** und dem **Walldorfer Gospelchor**. Karten ab € 12,20 gibt es [hier](https://grossgerau.reservix.de). Inkludiert ist ein Sektempfang ab 17:00 Uhr vor der Saalöffnung am 17:45 Uhr.
+<p></p>
+<img style="width: 250px; float: left;" alt="Abend-der-Chöre" src="/Saengerkreis/Abend-der-Chöre-2024-Plakat.jpg" hspace="10" vspace="10">
+
+**Nicht mehr aktuell, aber trotzdem schön**
 
 Wie immer am Samstag vor Muttertag fand am **Samstag, 11. Mai 2024** im **Bürgerhaus Kostheim** das traditionelle Muttertagskonzert statt
 <p></p>
