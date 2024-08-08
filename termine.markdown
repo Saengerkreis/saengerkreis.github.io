@@ -17,6 +17,6 @@ Hier finden Sie die Veranstaltungen der Chöre im Sängerkreis Mainspitze:
 
 **12. Oktober 2024: Jahreskonzert 180 Jahre MGV** des [MGV 1844 Kostheim](https://mgv1844.de/) im Bürgerhaus Kostheim, Winterstraße 29, 55246 Kostheim
 
- 
+**12. Oktober 2024, 19:00 Uhr: 170 Jahre ...und kein bisschen leise**, Jubiläumskonzert des [Gesangverein Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) - mit Schirm, Charme und Noten am Puls der Zeit, Theater Rüsselsheim, Am Treff 7, 65428 Rüsselsheim. Tickets gibt es [hier](https://theater-ruesselsheim.reservix.de/p/reservix/event/2280966)
 
 <br><br><br><br><br><br><br><br><br><br><br>
