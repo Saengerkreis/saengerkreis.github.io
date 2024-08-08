@@ -24,9 +24,9 @@ Viel Spaß auf diesen Seiten! Vielleicht bekommen Sie ja Lust auf mehr... Dann b
 
 **AKTUELLES**
 
-Der MGV 1844 Kostheim lädt am **Sonntag, 18. August 2024, ab 11:00 Uhr** zur Sternfahrt auf den Mathildenhof, 55246 Mainz-Kostheim, ein. Für das leibliche und das musikalische Wohl ist gesorgt.
-
 <img style="width: 250px; float: left;" alt="Sternfahrt" src="/Saengerkreis/Sternfahrt-2024.png" hspace="10" vspace="10">
+
+Der MGV 1844 Kostheim lädt am **Sonntag, 18. August 2024, ab 11:00 Uhr** zur Sternfahrt auf den Mathildenhof, 55246 Mainz-Kostheim, ein. Für das leibliche und das musikalische Wohl ist gesorgt.
 
 <p></p>
 
