@@ -13,7 +13,7 @@ Hier finden Sie in alphabetischer Reihenfolge unsere Mitglieder, die Vereine mit
 Die Hinweise auf die Chorliteratur nimmt nicht für sich in Anspruch, vollständig zu sein, sondern soll ein erster Hinweis sein. Die Klassifizierung als "Traditionell" weist auf ein breites Liedgut hin, dass sowohl Werke aus Klassik, Romantik, Oper und Operette, aber auch Zeitgenössisches aus Musical, Popmusik und Schlager umfassen kann. "Modern" weist darauf hin, dass Liedgut aus allen erdenklichen Genres gesungen wird, der Schwerpunkt aber auf modernerer Musik bzw. modernen Arrangements, meist mit Klavierbegleitung, gelegt wird. Bei Chören, die sich ganz bestimmten Genres widmen, ist dies gleich so vermerkt.<br>
 
 [Capriccio Musicale](http://www.capriccio-musicale.de/)<br>
-Frauenkammerchor. Literatur: Traditioneller à capella Chor<br>
+Frauenkammerchor. Literatur: Traditioneller a cappella Chor<br>
 
 [Chorgemeinschaft S.C.H. 1842 Ginsheim](http://www.chorgemeinschaft-ginsheim.de/)<br>
 Gemischter Chor. Literatur: Traditionell<br>
