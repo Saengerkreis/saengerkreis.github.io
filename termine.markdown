@@ -18,7 +18,7 @@ Hier finden Sie die Veranstaltungen der Chöre im Sängerkreis Mainspitze:
 
 **28. Juni 2025, 19:30 Uhr: 2. Jubiläumskonzert** anlässlich des 25-jährigen Bestehens der [Disharmonix](https://mgv-trebur.de/wir/), dem Pop-Chor des [MGV Mozart Trebur](https://mgv-trebur.de/) im großen Saal des "Eigenheim" Trebur, Astheimer Straße 55, Trebur.
 
-**29. Juni 2025, 17:00 Uhr: Colors of Sound**, das etwas andere Wunschkonzert der [TONart Kostheim](https://tonart-kostheim.de/) in der Kostheimer Friedesnkirche, Anton-Hehn-Straße 30.
+**29. Juni 2025, 17:00 Uhr: Colors of Sound**, das etwas andere Wunschkonzert der [TONart Kostheim](https://tonart-kostheim.de/) in der Kostheimer Friedenskirche, Anton-Hehn-Straße 30.
 
 **01. August 2025, 17:00 Uhr: Eröffnung der Ausstellung "175 Jahre GV Concordia** im Heimatmuseum Nordenstadt, Turmstraße 11, musikalisch begleitet vom Gemischten Chor des [Gesangverein Concordia Nordenstadt](https://www.gvc-nordenstadt.de/) und dem Pop-Jazz-Chor [Sing'n'Swing](https://www.chor-singnswing.de/).
 
