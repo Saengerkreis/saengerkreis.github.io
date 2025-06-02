@@ -32,6 +32,6 @@ Die [TonArt Kostheim](https://tonart-kostheim.de/) lädt am **29. Juni 2025, 17:
 
 Am **Sonntag, 21. September 2025, 18:00 Uhr (Einlass 17:00 Uhr)** findet wieder ein ganz besonderes chorisches Highlight statt: Der **Abend der Chöre** des Kreises Groß-Gerau und der Sparkassen-Stiftung Groß-Gerau mit drei durch eine Jury ausgewählten Chören aus den Sängerkreises Mainspitze und Groß-Gerau. Noch bleibt es ein Geheimnis, welche Chöre berücksichtigt werden, aber eintragen sollte man sich den Termin auf jeden Fall.
 
-
+<img style="width: 500px; float: left;" alt="disharmonix-jubiläum" src="/saengerkreis/fb_titel (002).jpg" hspace="10" vspace="10">
 
 
