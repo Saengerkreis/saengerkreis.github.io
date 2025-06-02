@@ -28,10 +28,10 @@ Viel Spaß auf diesen Seiten! Vielleicht bekommen Sie ja Lust auf mehr... Dann b
 
 Der [GV Concordia Nordenstadt](https://www.gvc-nordenstadt.de/) feiert mit allen seinen Chören 175 Jahre Concordia. Am **Sonntag, 15. Juni 2025, ab 11:00 Uhr** gibt es einen **Musikalischen Frühschoppen** zum Mitsingen, am **Freitag, 01. August 2025** wird um **17:00 Uhr** die Ausstellung **175 Jahre GV Concordia** eröffnet, und am **Sonntag, 21. September, 17:00 Uhr** feiert der Verein mit einm großen Jubiläumskonzert. Weitere Einzelheiten können dem Plakat entnommen werden oder auf der Seite [Termine](https://https://www.saengerkreismainspitze.de/termine/) nachgelesen werden.
 
-Die [TonArt Kostheim](https://tonart-kostheim.de/) lädt am **29. Juni 2025, 17:00 Uhr** zu **Colors of Sound - das etwas andere Wunschkonzert** in die **Friedenskirche Kostheim**. Auch hierzu finden sich weitere Einzeleheiten auf dem Plakat und unter [Termine](https://https://www.saengerkreismainspitze.de/termine/).
+Die [TonArt Kostheim](https://tonart-kostheim.de/) lädt am **29. Juni 2025, 17:00 Uhr** zu **Colors of Sound - das etwas andere Wunschkonzert** in die **Friedenskirche Kostheim**. Auch hierzu finden sich weitere Einzelheiten auf dem Plakat und unter [Termine](https://https://www.saengerkreismainspitze.de/termine/).
 
-Am **Sonntag, 21. September 2025, 18:00 Uhr (Einlass 17:00 Uhr)** findet wieder ein ganz besonderes chorisches Highlight statt: Der **Abend der Chöre** des Kreises Groß-Gerau und der Sparkassen-Stiftung Groß-Gerau mit drei durch eine Jury ausgewählten Chören aus den Sängerkreises Mainspitze und Groß-Gerau. Noch bleibt es ein Geheimnis, welche Chöre berücksichtigt werden, aber eintragen sollte man sich den Termin auf jeden Fall.
+Am **Freitag, 27. Juni, und am Samstag, 28. Juni 2025,** lädt der Pop-Chor [Disharmonix](https://mgv-trebur.de/wir/] zur Feier seines 25-jährigen Bestehens zum **Jubiläumskonzert** in den Saal des **"Eigenheim"** in **Trebur**. Die Einzelheiten finden sich auch hierfür auf dem Plakat.
 
 <img style="width: 750px; float: left;" alt="disharmonix-jubiläum" src="Saengerkreis/disharmonix.jpg" hspace="10" vspace="10">
 
-
+Am **Sonntag, 21. September 2025, 18:00 Uhr (Einlass 17:00 Uhr)** findet wieder ein ganz besonderes chorisches Highlight statt: Der **Abend der Chöre** des Kreises Groß-Gerau und der Sparkassen-Stiftung Groß-Gerau mit drei durch eine Jury ausgewählten Chören aus den Sängerkreises Mainspitze und Groß-Gerau. Noch bleibt es ein Geheimnis, welche Chöre berücksichtigt werden, aber eintragen sollte man sich den Termin auf jeden Fall.
