@@ -34,6 +34,9 @@ Hier finden Sie die Veranstaltungen der Chöre im Sängerkreis Mainspitze:
 
 **08. November 2025, Uhrzeit folgt: Das etwas andere Weinfest** des [MGV 1844 Kostheim](https://mgv1844.de/) im Bürgerhaus Kostheim, Winterstraße 20, Mainz-Kostheim.
 
+**03. Dezember 2025, Uhrzeit folgt: Adventskonzert** der Arbeitsgemeinschaft Biebricher Vereine mit dem Landes-Polizeiorchester Hessen in der Oranier-Gedächtniskirche, Lutherstraße 4a, 65203 Wiesbaden.
+
+
 **05. Dezember 2025, 18:00 Uhr: Weihnachtskonzert** des [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) in der Stadtkirche Rüsselsheim, Marktplatz 7, Rüsselsheim.
 
 **14. Dezember 2025, 16:00 Uhr: Adventskonzert** mit dem [Club Harmonie 1911](https://club-harmonie.de/index.shtml) und der SKG Bauschheim im Bürgerhaus Bauschheim, Kirchgarten 6, Rüsselsheim-Bauschheim.
