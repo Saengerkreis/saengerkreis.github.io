@@ -32,7 +32,7 @@ Die [TonArt Kostheim](https://tonart-kostheim.de/) lädt am **29. Juni 2025, 17:
 
  <img style="width: 700px; float: left;" alt="disharmonix-jubiläum" src="Saengerkreis/disharmonix.jpg" hspace="10" vspace="10">
 
-Am **Freitag, 27. Juni, und am Samstag, 28. Juni 2025,** lädt der Pop-Chor [Disharmonix](https://mgv-trebur.de/wir/] zur Feier seines 25-jährigen Bestehens zum **Jubiläumskonzert** in den Saal des **"Eigenheim"** in **Trebur**. Die Einzelheiten finden sich auch hierfür auf dem Plakat. 
+Am **Freitag, 27. Juni, und am Samstag, 28. Juni 2025,** lädt der Pop-Chor [Disharmonix](https://mgv-trebur.de/wir/) zur Feier seines 25-jährigen Bestehens zum **Jubiläumskonzert** in den Saal des **"Eigenheim"** in **Trebur**. Die Einzelheiten finden sich auch hierfür auf dem Plakat. 
 
 
  Am **Sonntag, 21. September 2025, 18:00 Uhr (Einlass 17:00 Uhr)** findet wieder ein ganz besonderes chorisches Highlight statt: Der **Abend der Chöre** des Kreises Groß-Gerau und der Sparkassen-Stiftung Groß-Gerau mit drei durch eine Jury ausgewählten Chören aus den Sängerkreises Mainspitze und Groß-Gerau. Noch bleibt es ein Geheimnis, welche Chöre berücksichtigt werden, aber eintragen sollte man sich den Termin auf jeden Fall.
