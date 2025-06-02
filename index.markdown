@@ -30,7 +30,7 @@ Der [GV Concordia Nordenstadt](https://www.gvc-nordenstadt.de/) feiert mit allen
 
 Die [TonArt Kostheim](https://tonart-kostheim.de/) lädt am **29. Juni 2025, 17:00 Uhr** zu **Colors of Sound - das etwas andere Wunschkonzert** in die **Friedenskirche Kostheim**. Auch hierzu finden sich weitere Einzelheiten auf dem Plakat und unter [Termine](https://https://www.saengerkreismainspitze.de/termine/).
 
- <img style="width: 700px; float: right;" alt="disharmonix-jubiläum" src="Saengerkreis/disharmonix.jpg" hspace="20" vspace="20">
+ <img style="width: 700px; float: left;" alt="disharmonix-jubiläum" src="Saengerkreis/disharmonix.jpg" hspace="20" vspace="20">
 
 Am **Freitag, 27. Juni, und am Samstag, 28. Juni 2025,** lädt der Pop-Chor [Disharmonix](https://mgv-trebur.de/wir/) zur Feier seines 25-jährigen Bestehens zum **Jubiläumskonzert** in den Saal des **"Eigenheim"** in **Trebur**. Die Einzelheiten finden sich auch hierfür auf dem Plakat. 
 
