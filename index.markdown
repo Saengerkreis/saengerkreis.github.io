@@ -24,7 +24,7 @@ Viel Spaß auf diesen Seiten! Vielleicht bekommen Sie ja Lust auf mehr... Dann b
 
 **AKTUELLES**
 
-<img style="width: 500px; float: left;" alt="nordenstadt-jubiläum" src="/nordenstadt-jubiläum-singen-wiesabaden.jpg" hspace="10" vspace="10"> <img style="width: 270px; float: right;" alt="Colors-TonArt" src="/Plakat-TonArt2025.jpg" hspace="10" vspace="10">
+<img style="width: 490px; float: left;" alt="nordenstadt-jubiläum" src="/nordenstadt-jubiläum-singen-wiesabaden.jpg" hspace="10" vspace="10"> <img style="width: 260px; float: right;" alt="Colors-TonArt" src="/Plakat-TonArt2025.jpg" hspace="10" vspace="10">
 
 Der [GV Concordia Nordenstadt](https://www.gvc-nordenstadt.de/) feiert mit allen seinen Chören 175 Jahre Concordia. Am **Sonntag, 15. Juni 2025, ab 11:00 Uhr** gibt es einen **Musikalischen Frühschoppen** zum Mitsingen, am **Freitag, 01. August 2025** wird um **17:00 Uhr** die Ausstellung **175 Jahre GV Concordia** eröffnet, und am **Sonntag, 21. September, 17:00 Uhr** feiert der Verein mit einm großen Jubiläumskonzert. Weitere Einzelheiten können dem Plakat entnommen werden oder auf der Seite [Termine](https://https://www.saengerkreismainspitze.de/termine/) nachgelesen werden.
 
