@@ -10,17 +10,11 @@ index: 4
 
 Hier finden Sie die Veranstaltungen der Chöre im Sängerkreis Mainspitze:
 
-**08. Juni 2025, 15:00 Uhr: Familiensommerfest** des [GV Einigkeit Gustavsburg](https://www.facebook.com/people/Gesangverein-Einigkeit-1898-Gustavsburg-eV/100072045551855/?ref=page_internal#) auf dem Hof des Hauses der Vereine, Pestalozzistraße 10, Gustavsburg
-
-**15. Juni 2025, 11:00 Uhr: Musikalischer Frühschoppen** zum Mitsingen im Museumshof Nordenstadt, Turmstraße 11, zum 175-jährigen Jubiläum des [Gesangverein Concordia Nordenstadt](https://www.gvc-nordenstadt.de/). 
-
-**27. Juni 2025, 19:30 Uhr: Jubiläumskonzert** anlässlich des 25-jährigen Bestehens der [Disharmonix](https://mgv-trebur.de/wir/), dem Pop-Chor des [MGV Mozart Trebur](https://mgv-trebur.de/) im großen Saal des "Eigenheim" Trebur, Astheimer Straße 55, Trebur.
-
-**28. Juni 2025, 19:30 Uhr: 2. Jubiläumskonzert** anlässlich des 25-jährigen Bestehens der [Disharmonix](https://mgv-trebur.de/wir/), dem Pop-Chor des [MGV Mozart Trebur](https://mgv-trebur.de/) im großen Saal des "Eigenheim" Trebur, Astheimer Straße 55, Trebur.
-
 **29. Juni 2025, 17:00 Uhr: Colors of Sound**, das etwas andere Wunschkonzert der [TONart Kostheim](https://tonart-kostheim.de/) in der Kostheimer Friedenskirche, Anton-Hehn-Straße 30.
 
 **01. August 2025, 17:00 Uhr: Eröffnung der Ausstellung "175 Jahre GV Concordia** im Heimatmuseum Nordenstadt, Turmstraße 11, musikalisch begleitet vom Gemischten Chor des [Gesangverein Concordia Nordenstadt](https://www.gvc-nordenstadt.de/) und dem Pop-Jazz-Chor [Sing'n'Swing](https://www.chor-singnswing.de/).
+
+**23. August 2025, 17:00 Uhr: Dämmerschoppen** zum Mitsingen mit dem [Gesangverein Harmonie 1854 Kostheim)[https://gv-harmonie-1854.de/] auf dem Mathildenhof, Mathildenstraße 109, 55246 Mainz-Kostheim; Zugang auch über die Berberichstraße. Special Guests u.a. Kosthem Harmonists.
 
 **24. August 2025, 10:00 Uhr: Schlagerfrühschoppen** mit dem Männder- und dem Frauenchor des [MGV Mozart Trebur](https://mgv-trebur.de/) im Sängerheim des MGV, Außerhalb 60, Trebur.
 
