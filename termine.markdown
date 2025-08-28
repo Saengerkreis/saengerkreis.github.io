@@ -18,7 +18,7 @@ Hier finden Sie die Veranstaltungen der Chöre im Sängerkreis Mainspitze:
 
 **24. August 2025, 10:00 Uhr: Schlagerfrühschoppen** mit dem Männder- und dem Frauenchor des [MGV Mozart Trebur](https://mgv-trebur.de/) im Sängerheim des MGV, Außerhalb 60, Trebur.
 
-**14. September 2025, 11:00 Uhr: Sternfahrt** des Sängerkreises Mainspitze auf Einladung von [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) und [Club Harmonie 1911](https://club-harmonie.de/index.shtml) auf den Vorplatz des Theaters Rüsselsheim, Treff 7, Rüsselsheim.
+**FÄLLT AUS!! 07. September 2025, 11:00 Uhr: Sternfahrt** des Sängerkreises Mainspitze auf Einladung von [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) und [Club Harmonie 1911](https://club-harmonie.de/index.shtml) auf den Vorplatz des Theaters Rüsselsheim, Treff 7, Rüsselsheim.
 
 **21. September 2025, 17:00 Uhr: Jubiläums-Chorkonzert** mit dem Gemischten Chor des [Gesangverein Concordia Nordenstadt](https://www.gvc-nordenstadt.de/) und dem Pop-Jazz-Chor [Sing'n'Swing](https://www.chor-singnswing.de/) in der Katholischen Kirche Nordenstadt, Borkestraße 4.
 
