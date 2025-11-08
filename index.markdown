@@ -24,15 +24,10 @@ Viel Spaß auf diesen Seiten! Vielleicht bekommen Sie ja Lust auf mehr... Dann b
 
 **AKTUELLES**
 
-<img style="width: 500px; float: left;" alt="nordenstadt-jubiläum" src="/nordenstadt-jubiläum-singen-wiesabaden.jpg" hspace="10" vspace="10"> <img style="width: 270px; float: right;" alt="Colors-TonArt" src="/Plakat-TonArt2025.jpg" hspace="10" vspace="10">
 
-Der [GV Concordia Nordenstadt](https://www.gvc-nordenstadt.de/) feiert mit allen seinen Chören 175 Jahre Concordia. Am **Freitag, 01. August 2025** wird um **17:00 Uhr** die Ausstellung **175 Jahre GV Concordia** eröffnet, und am **Sonntag, 21. September, 17:00 Uhr** feiert der Verein mit einem großen Jubiläumskonzert. Weitere Einzelheiten können dem Plakat entnommen werden oder auf der Seite [Termine](https://https://www.saengerkreismainspitze.de/termine/) nachgelesen werden.
+Am **05. Dezember 2025** gibt der [Liederkranz 1854 Rüsselsheim](https://liederkranz1854.de/) sein traditionelles Adventskonzert in der Stadtkirche Rüsselsheim, Marktplatz 7, 65428 Rüsselsheim 
 
-Die [TonArt Kostheim](https://tonart-kostheim.de/) lädt am **29. Juni 2025, 17:00 Uhr** zu **Colors of Sound - das etwas andere Wunschkonzert** in die **Friedenskirche Kostheim**. Auch hierzu finden sich weitere Einzelheiten auf dem Plakat und unter [Termine](https://https://www.saengerkreismainspitze.de/termine/).
+<img style="width: 300px; float: left;" alt="Candlelightsingen-Trebur" src="/Candlelight-Weihnachtssingen.jpg" hspace="10" vspace="10"> 
 
-<img style="width: 270px; float: left" alt="Dämmerschoppen-Harmonie" src="Saengerkreis/Harmonie-musik-Daemmerschoppen.jpg" hspace="20" vspace="20">
+Die ["Disharmonix"](https://mgv-trebur.de/wir/) des MGV Mozart Trebur laden am **15. Dezember 2025** ab **16:00 Uhr** zum Candlelight-Weihnachtssingen in die Laurentiuskirche Trebur, Obere Pforte 26, 65468 Trebur. Ausführliche Informationen finden sich [hier].
 
-Am **Samstag, 23. August 2025,** lädt der [Gesangverein Harmonie 1854 Kostheim](https://gv-harmonie-1854.de) im Rahmen der Kulturtage AKK zu einem Musiklaischen Dämerschoppen in den Mathildenhof. Die Einzelheiten finden sich auch hierfür auf dem Plakat und unter [Termine](https://https://www.saengerkreismainspitze.de/termine/). 
-
-
- Am **Sonntag, 21. September 2025, 18:00 Uhr (Einlass 17:00 Uhr)** findet wieder ein ganz besonderes chorisches Highlight statt: Der **Abend der Chöre** des Kreises Groß-Gerau und der Sparkassen-Stiftung Groß-Gerau mit drei durch eine Jury ausgewählten Chören aus den Sängerkreises Mainspitze und Groß-Gerau. Noch bleibt es ein Geheimnis, welche Chöre berücksichtigt werden, aber eintragen sollte man sich den Termin auf jeden Fall.
