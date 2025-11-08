@@ -29,5 +29,5 @@ Am **05. Dezember 2025** gibt der [Liederkranz 1854 Rüsselsheim](https://lieder
 
 <img style="width: 300px; float: left;" alt="Candlelightsingen-Trebur" src="/Candlelight-Weihnachtssingen.jpg" hspace="10" vspace="10"> 
 
-Die ["Disharmonix"](https://mgv-trebur.de/wir/) des MGV Mozart Trebur laden am **15. Dezember 2025** ab **16:00 Uhr** zum Candlelight-Weihnachtssingen in die Laurentiuskirche Trebur, Obere Pforte 26, 65468 Trebur. Ausführliche Informationen finden sich [hier].
+Die ["Disharmonix"](https://mgv-trebur.de/wir/) des MGV Mozart Trebur laden am **15. Dezember 2025** ab **16:00 Uhr** zum Candlelight-Weihnachtssingen in die Laurentiuskirche Trebur, Obere Pforte 26, 65468 Trebur. Ausführliche Informationen finden sich [hier](saengerkreismainspitze.de/Candlelight-Weihnachtssingen-Disharmonix.pdf).
 
