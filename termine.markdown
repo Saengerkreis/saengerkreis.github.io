@@ -36,5 +36,7 @@ Hier finden Sie die Veranstaltungen der Chöre im Sängerkreis Mainspitze:
 
 **14. Dezember 2025, 16:00 Uhr: Adventskonzert** mit dem [Club Harmonie 1911](https://club-harmonie.de/index.shtml) und der SKG Bauschheim in der Katholischen St. Michael Kirche Bauschheim, Brüsseler Straße 9, Rüsselsheim-Bauschheim.
 
+**15. Dezember 2025, 16:00 Uhr: Candlelight-Weihnachstsingen** mit den [Disharmonix](https://mgv-trebur.de/wir/) in der Laurentiuskirche Trebur, Obere Pforte 26, 65468 Trebur
+
 
 <br><br><br><br><br><br><br><br><br><br><br>
